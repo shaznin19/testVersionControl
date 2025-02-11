@@ -1,2 +1,2 @@
 shaznin; shazninsultana@u.boisestate.edu
-sadia; sadiaafreen@u.boisestate.edu
+sadia afreen; sadiaafreen@u.boisestate.edu
